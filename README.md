@@ -1,4 +1,4 @@
-# Disclaimer 🍥
+# Note 🍥
 This webpage is currently available on the internet.
 
 # Details 🎀
